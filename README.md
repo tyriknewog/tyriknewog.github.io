@@ -1,0 +1,2 @@
+# tyriknewog.github.io
+website
